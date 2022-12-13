@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @zamirr0007
+- 👀 I’m interested in Frontend and SMM
+- 🌱 I’m currently learning Frontend
+- 💞️ I’m looking to collaborate on With a Google campaign and an Apple campaign
+- 📫 How to reach me You can contact me via Instagram, Telegram or my personal email!
